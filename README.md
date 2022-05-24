@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @TheNapper77
 - 👀 I’m interested in Music + NFT
 - 🌱 I’m currently learning about how to monetize copyright on the web3
-- 💞️ I’m looking to collaborate on other musicians
+- 💞️ I’m looking to collaborate with other musicians
 - 📫 How to reach me --> juanfriosuna77@gmail.com
 
 <!---
